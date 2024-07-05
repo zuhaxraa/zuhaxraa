@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zuhaxraa
+- 🌱 I’m currently a student at Alpha College, Karachi.
+- 📫 How to reach me: zuhairaa.baig@gmail.com
+- 😄 Pronouns: She/Her
